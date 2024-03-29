@@ -1,6 +1,6 @@
-##@leleinguine
-###Designer & Developer (student)
+## @leleinguine
+### Designer & Developer (student)
 
-##What do you want to see? 👀
+## What do you want to see? 👀
 
 >more valentinluginbuhl.fr
